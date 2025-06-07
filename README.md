@@ -1,1 +1,1 @@
-# NovelRepo for all
+# NovelRepo for all and none
