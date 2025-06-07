@@ -1,1 +1,1 @@
-# NovelRepo for all and none
+# NovelRepo Will help many people
